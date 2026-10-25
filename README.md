@@ -1,0 +1,1 @@
+# industrial-equipment-capital-depreciation-ledger
